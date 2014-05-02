@@ -1,8 +1,4 @@
 demolitionman
 =============
 
-dasf
-sasad
-sw
-ss
-xcdza
+Is it cold in here, or is it just me?
